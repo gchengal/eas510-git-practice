@@ -1,0 +1,1 @@
+I'm a grad student with a strong passion for AI and it's applications. My first major encounter was Alexa, that's when the interest grew more. My learning journey focuses on data-driven problem-solving as I worked as a Data Analyst to exploring Machine Learning, neural networks. I am eager to continue learning and contibute to make an positive impact on the world.
